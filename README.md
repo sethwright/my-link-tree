@@ -1,10 +1,13 @@
-# Free free to reach out to me!
+# Seth Wright
+### Student at Code Chrysalis - 2021
 
-## [My LinkedIn](https://www.linkedin.com/in/wseth/)
+### Free free to reach out to me!
+
+### [My LinkedIn](https://www.linkedin.com/in/wseth/)
 Regarding jobs, or my backgrouund, feel free to take a look.
 
-## [My Github](https://github.com/sethwright)
+### [My Github](https://github.com/sethwright)
 Your browsing it right now 😉
 
-## [My Insta](https://instagram.com/seth.sesu)
+### [My Insta](https://instagram.com/seth.sesu)
 For my interests and political opinions 😅. Free free to request.
