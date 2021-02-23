@@ -7,4 +7,4 @@ Regarding jobs, or my backgrouund, feel free to take a look.
 Your browsing it right now 😉
 
 ## [My Insta](https://instagram.com/seth.sesu)
-If you're interested in my interests and political opinions 😅. Free free to request.
+For my interests and political opinions 😅. Free free to request.
